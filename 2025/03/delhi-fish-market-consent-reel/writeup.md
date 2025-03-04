@@ -25,5 +25,6 @@ If you are not a hypocrite and believe in moral consistency, then you must recog
 
 And if the footage of what happens inside the dairy industry makes you sob, then take the next step. Boycott all animal products. It will make a difference.
 
-https://youtube.com/shorts/TScNvyMSXCA?si=dVyCEw510hALZz6a 
-https://youtube.com/shorts/30o1bdCj0UQ?si=gZthEyQXEMD98jgR 
+## Relevant links
+- https://youtube.com/shorts/TScNvyMSXCA?si=dVyCEw510hALZz6a
+- https://youtube.com/shorts/30o1bdCj0UQ?si=gZthEyQXEMD98jgR 
