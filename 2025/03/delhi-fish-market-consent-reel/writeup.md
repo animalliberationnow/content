@@ -10,7 +10,7 @@ The animal's legs are tied, and someone shoves their hands into that animal's re
 
 They show every sign as if they are also saying "sir aap chu nahi sakte", but there voices are unheard the signs ignored.
 
-So if you are not a hypocrite and morally consistent you can figure that animals and humans have a right on the body which needs to be preserved and respected and everywhere and always. 
+So if you are not a hypocrite and morally-consistent, you can figure that the animals and humans have a right on their body, which needs to be preserved and respected any and everywhere always.
 
 At the end of the video you can also see the atrocities committed on the animals in the dairy industry, if that makes you sob, boycot all animal products it will make a difference
 What happened to this girl and the cameraman in this video is absolutely wrong. No one should be violated like that.
