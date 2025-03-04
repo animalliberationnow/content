@@ -6,7 +6,9 @@ But I heard this girl saying in the video "Sir app chhu nahin sakte" intending t
 
 But the same creator who is upset and concerned when her rights are violated will later go and consume animal product for which animals are violated day in and day out 
 
-They are tide hands are being put into their rectum hands in the vagina to make them pregnant they show every sign as if they are also saying"sir aap chu nahi sakte" but there voices are unheard the signs ignored. 
+The animal's legs are tied, and someone shoves their hands into that animal's rectum, and a rod in their vagina to make them pregnant.
+
+They show every sign as if they are also saying "sir aap chu nahi sakte", but there voices are unheard the signs ignored.
 
 So if you are not a hypocrite and morally consistent you can figure that animals and humans have a right on the body which needs to be preserved and respected and everywhere and always. 
 
