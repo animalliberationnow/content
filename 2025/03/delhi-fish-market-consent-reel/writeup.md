@@ -1,10 +1,10 @@
 # Writeup
 
-So whatever happened to this girl and the camera man in this video is wrong in every way.
+So whatever happened to this girl and the cameraman in this video is wrong in every way.
 
 But I heard this girl saying in the video "Sir app chhu nahin sakte" intending that they cannot touch them and come closer to them without their consent. 
 
-But the same creator who is upset and concerned when her rights are violated will later go and consume animal product for which animals are violated day in and day out 
+But the same creator who is upset and concerned when her rights are violated will later go and consume animal product for which animals are violated day-in and day-out.
 
 The animal's legs are tied, and someone shoves their hands into that animal's rectum, and a rod in their vagina to make them pregnant.
 
