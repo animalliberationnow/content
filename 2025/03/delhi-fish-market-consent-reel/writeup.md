@@ -12,7 +12,7 @@ They show every sign as if they are also saying "sir aap chu nahi sakte", but th
 
 So if you are not a hypocrite and morally-consistent, you can figure that the animals and humans have a right on their body, which needs to be preserved and respected any and everywhere always.
 
-At the end of the video you can also see the atrocities committed on the animals in the dairy industry, if that makes you sob, boycot all animal products it will make a difference
+At the end of the video you can also see the atrocities committed on the animals in the dairy industry, if that makes you sob, boycott all animal products it will make a difference.
 What happened to this girl and the cameraman in this video is absolutely wrong. No one should be violated like that.
 
 But I couldn’t help but notice when she said, "Sir, aap chhu nahi sakte", insisting that no one has the right to touch her without her consent. And she’s right.
